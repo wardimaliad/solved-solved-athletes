@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-athletes
+<br>
+Athletes are tested for power output, flexibility, body composition, and aerobic fitness. The tests include, but are not limited to, Sit and Reach (flexibility), Skin Fold Test (body composition), VO2max (aerobic fitness), and The Wingate Test (power output). The vertical jump is broken into three phases. Preparatory Phase (down):xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxx
